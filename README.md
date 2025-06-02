@@ -1,5 +1,5 @@
 # 💫 About Me:
-Cyber Security Student at FUTA<br>Web Developer<br>Graphics Designer
+Cyber Security Student at FUTA<br>Web Developer
 
 
 ## 🌐 Socials:
